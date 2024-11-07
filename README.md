@@ -1,1 +1,1 @@
-proxy (prolly dont work) still in progess oct 29 2024
+i was to lazy to do it
